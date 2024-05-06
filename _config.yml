@@ -6,3 +6,5 @@ title: Vedrana travel
 description: Tailored experiences in Dubrovnik
 
 show_downloads: false
+github:
+  is_project_page: false
