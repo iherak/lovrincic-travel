@@ -8,10 +8,15 @@ For all information contact Vedrana on [WhatsApp](https://wa.me/00385918861283).
 Telephone number:  [00385918861283](tel:00385918861283)
 
 # Booking information
-Available tours for booking:
+Available experiences for booking:
 * [Half Day Blue Cave, Swim & Snorkel Tour](#half-day-blue-cave-swim-and-snorkel-tour)
 * [Sunset Cruise](#dubrovnik-sunset-cruise)
 * [Fish picnic: Elafiti Island](#elafiti-fish-picnic)
+* speedboat rentals
+* traditional boat rentals
+* jet ski rentals
+* kayak tours
+* walking tours
 
 # Tours
 ## Half Day Blue Cave, Swim and Snorkel Tour
