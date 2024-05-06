@@ -5,6 +5,8 @@ Get you custom-tailored experience around Dubrovnik with Vedrana - get the best 
 # Contact
 For all information contact Vedrana on [WhatsApp](https://wa.me/00385918861283).
 
+Telephone number:  [00385918861283](tel:00385918861283)
+
 # Booking information
 Available tours for booking:
 * [Half Day Blue Cave, Swim & Snorkel Tour](#half-day-blue-cave-swim-and-snorkel-tour)
