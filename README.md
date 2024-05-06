@@ -25,7 +25,8 @@ Included:
 
 Two crew members abroad for your safety and comfort aboard! 
 
-Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”
+Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”.
+
 Your boat will be on a small pier in the Old Town Harbor, next to the restaurant “Lokanda”.
 
 ## Dubrovnik Sunset Cruise
@@ -40,10 +41,11 @@ Included:
 
 Two crew members abroad for your safety and comfort aboard!
 
-Meeting Point: Look for “MARINERO excursions” at the Old Town Harbor, next to the restaurant “Lokanda”
+Meeting Point: Look for “MARINERO excursions” at the Old Town Harbor, next to the restaurant “Lokanda”.
+
 Your boat will be on a small pier in the Old Town Harbor, next to the restaurant “Lokanda”.
 
-**Important:** Subject to Favorable Weather Conditions! In the event of cancellation due to poor weather, alternative dates will be offered.
+**Important:** Subject to favorable weather conditions! In the event of cancellation due to poor weather, alternative dates will be offered.
 
 > Pro tip: Remember to pack your camera and a sweater – evenings at sea can get chilly! Reserve your spot now and prepare for a sunset cruise you’ll cherish forever.
 
