@@ -5,7 +5,7 @@ Get you custom-tailored experience around Dubrovnik with Vedrana - get the best 
 # Contact
 For all information contact Vedrana on [WhatsApp](https://wa.me/+385918861283).
 
-Telephone number:  [00385918861283](tel:+385918861283)
+Telephone number:  [+385918861283](tel:+385918861283)
 
 # Booking information
 Available experiences for booking:
