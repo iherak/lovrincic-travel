@@ -1,10 +1,8 @@
-# Book the most unique experiences in Dubrovnik
+# Book unique experiences in Dubrovnik
 
 Contact your booking agent Vedrana for any info you might need. 
 
-For all information contact Vedrana on [WhatsApp](https://wa.me/+385918861283).
-
-Telephone number:  [+385918861283](tel:+385918861283)
+For all information and reservations contact on [WhatsApp](https://wa.me/+385918861283), [Viber](viber://chat/?number=%2B385918861283) or by telephone [+385918861283](tel:+385918861283).
 
 # Booking information
 Available experiences for booking:
@@ -34,8 +32,6 @@ Two crew members abroad for your safety and comfort aboard!
 
 Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”.
 
-Your boat will be on a small pier in the Old Town Harbor, next to the restaurant “Lokanda”.
-
 ## Dubrovnik Sunset Cruise
 Available on Weekdays: Sundays and Thursdays
 
@@ -50,8 +46,6 @@ Included:
 Two crew members abroad for your safety and comfort aboard!
 
 Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”.
-
-Your boat will be on a small pier in the Old Town Harbor, next to the restaurant “Lokanda”.
 
 **Important:** Subject to favorable weather conditions! In the event of cancellation due to poor weather, alternative dates will be offered.
 
