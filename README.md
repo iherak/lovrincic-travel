@@ -53,9 +53,9 @@ Departures every day of the week!
 Duration: 8 hours 
 
 Included:
-* Lunch on the boat (fish, chicken, or vegetarian menu)
+* Lunch on the boat (fish, chicken or vegetarian menu)
 * Unlimited drinks (assorted soft drinks, wine and water)
 * the boat features air-conditioned salon
 * Hotel pick-up and drop-off in Dubrovnik
 
-Tour departs from Gruž port.
+The tour departs from Gruž port.
