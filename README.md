@@ -23,7 +23,8 @@ Available experiences for booking:
 Departures every day of the week!
 
 Duration: 4 hours 
-Group Size: Max 15 travelers
+
+Group size: Max 15 travelers
 
 Included:
 * Unlimited drinks (assorted soft drinks, alcoholic beverages (beer/wine), & water)
