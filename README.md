@@ -17,14 +17,14 @@ For all information and reservations contact on [WhatsApp](https://wa.me/+385918
 
 # Tours
 ## Half Day Blue Cave, Swim and Snorkel Tour
-Departures every day of the week!
+Two departures (morning and afternoon) every day of the week!
 
 Duration: 4 hours 
 
-Group size: Max 15 travelers
+Group size: Maximum 15 travelers
 
 Included:
-* Unlimited drinks (assorted soft drinks, alcoholic beverages (beer/wine), & water)
+* Unlimited drinks (soft and alcoholic drinks, water)
 * Free use of snorkeling equipment
 * Life jackets
 
@@ -37,10 +37,10 @@ Available on Weekdays: Sundays and Thursdays
 
 Duration: 1.5 Hours
 
-Group Size: Maximum 14 Travelers
+Group size: Maximum 15 travelers
 
 Included:
-* Unlimited Drinks (Soft and Alcoholic)
+* Unlimited Drinks (soft and alcoholic drinks, water)
 * Fresh Seasonal Mixed Fruit
 
 Two crew members abroad for your safety and comfort aboard!
@@ -54,6 +54,6 @@ Duration: 8 hours
 
 Included:
 * Exclusive tour of Elafiti islands
-* Lunch on the boat
-* Unlimited drinks (assorted soft drinks, alcoholic beverages (beer/wine), & water)
+* Lunch on the boat (fish, chicken, or vegetarian menu)
+* Unlimited drinks (assorted soft drinks, wine and water)
 * Hotel pick-up and drop-off in Dubrovnik
