@@ -1,8 +1,7 @@
 # Book unique experiences in Dubrovnik
 
-Get you custom-tailored experience around Dubrovnik with Vedrana - get the best value for **you**. 
+Contact your booking agent Vedrana for any info you might need. 
 
-# Contact
 For all information contact Vedrana on [WhatsApp](https://wa.me/+385918861283).
 
 Telephone number:  [+385918861283](tel:+385918861283)
