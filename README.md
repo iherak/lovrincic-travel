@@ -1,4 +1,4 @@
-# Experience Dubrovnik with Vedrana
+# Book unique experiences in Dubrovnik
 
 Get you custom-tailored experience around Dubrovnik with Vedrana - get the best value for **you**. 
 
