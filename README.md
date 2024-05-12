@@ -2,6 +2,8 @@ For information and reservations contact your booking agent Vedrana.
 
 Contact on [WhatsApp](https://wa.me/+385918861283), [Viber](viber://chat/?number=%2B385918861283) or by telephone [+385918861283](tel:+385918861283).
 
+___
+
 # Available experiences for booking:
 * [Half Day Blue Cave, Swim & Snorkel Tour](#half-day-blue-cave-swim-and-snorkel-tour)
 * [Sunset Cruise](#dubrovnik-sunset-cruise)
@@ -57,7 +59,6 @@ Included:
 * Hotel pick-up and drop-off in Dubrovnik
 
 The tour departs from Gruž port.
-
 
 ___
 
