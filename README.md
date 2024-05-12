@@ -4,8 +4,7 @@ Contact your booking agent Vedrana for any info you might need.
 
 For all information and reservations contact on [WhatsApp](https://wa.me/+385918861283), [Viber](viber://chat/?number=%2B385918861283) or by telephone [+385918861283](tel:+385918861283).
 
-# Booking information
-Available experiences for booking:
+# Available experiences for booking:
 * [Half Day Blue Cave, Swim & Snorkel Tour](#half-day-blue-cave-swim-and-snorkel-tour)
 * [Sunset Cruise](#dubrovnik-sunset-cruise)
 * [Fish picnic: Elafiti Island](#elafiti-fish-picnic)
