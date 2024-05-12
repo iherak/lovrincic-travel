@@ -50,7 +50,7 @@ Included:
 
 Two crew members abroad for your safety and comfort aboard!
 
-Meeting Point: Look for “MARINERO excursions” at the Old Town Harbor, next to the restaurant “Lokanda”.
+Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”.
 
 Your boat will be on a small pier in the Old Town Harbor, next to the restaurant “Lokanda”.
 
@@ -67,8 +67,4 @@ Included:
 * Exclusive tour of Elafiti islands
 * Lunch on the boat
 * Unlimited drinks (assorted soft drinks, alcoholic beverages (beer/wine), & water)
-* Hotel pick-up and drop-off in Dubrovnik (if necessary).
-
-Two crew members abroad for your safety and comfort aboard!
-
-
+* Hotel pick-up and drop-off in Dubrovnik
