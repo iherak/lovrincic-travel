@@ -1,6 +1,6 @@
-### For information and reservations contact your booking agent Vedrana.
+For information and reservations contact your booking agent Vedrana.
 
-### Contact on [WhatsApp](https://wa.me/+385918861283), [Viber](viber://chat/?number=%2B385918861283) or by telephone [+385918861283](tel:+385918861283).
+Contact on [WhatsApp](https://wa.me/+385918861283), [Viber](viber://chat/?number=%2B385918861283) or by telephone [+385918861283](tel:+385918861283).
 
 ___
 
