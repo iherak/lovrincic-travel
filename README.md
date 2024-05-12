@@ -47,8 +47,6 @@ Two crew members abroad for your safety and comfort aboard!
 
 Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”.
 
-> Pro tip: Remember to pack your camera and a sweater – evenings at sea can get chilly! Reserve your spot now and prepare for a sunset cruise you’ll cherish forever.
-
 ## Elafiti Fish Picnic
 Departures every day of the week!
 
