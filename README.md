@@ -8,7 +8,8 @@ For all information and reservations contact on [WhatsApp](https://wa.me/+385918
 * [Half Day Blue Cave, Swim & Snorkel Tour](#half-day-blue-cave-swim-and-snorkel-tour)
 * [Sunset Cruise](#dubrovnik-sunset-cruise)
 * [Fish picnic: Elafiti Island](#elafiti-fish-picnic)
-* speedboat rentals
+* yacht rentals
+* speedboat rentals (with or without a skipper)
 * traditional boat rentals
 * jet ski rentals
 * kayak tours
