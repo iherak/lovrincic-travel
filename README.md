@@ -41,6 +41,7 @@ Your boat will be on a small pier in the Old Town Harbor, next to the restaurant
 Available on Weekdays: Sundays and Thursdays
 
 Duration: 1.5 Hours
+
 Group Size: Maximum 14 Travelers
 
 Included:
