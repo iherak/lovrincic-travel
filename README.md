@@ -7,7 +7,7 @@ Contact on [WhatsApp](https://wa.me/+385918861283), [Viber](viber://chat/?number
 # Available experiences for booking:
 * [Half Day Blue Cave, Swim & Snorkel Tour](#half-day-blue-cave-swim-and-snorkel-tour)
 * [Sunset Cruise](#dubrovnik-sunset-cruise)
-* [Fish picnic: Elafiti Island](#elafiti-fish-picnic)
+* [Elafiti Islands Fish picnic](#elafiti-islands-fish-picnic)
 * yacht rentals
 * speedboat rentals (with or without a skipper)
 * traditional boat rentals
@@ -47,7 +47,7 @@ Two crew members abroad for your safety and comfort aboard!
 
 Meeting Point: Look for **“MARINERO excursions”** at the Old Town Harbor, next to the restaurant “Lokanda”.
 
-## Elafiti Fish Picnic
+## Elafiti Islands Fish Picnic
 Departures every day of the week!
 
 Duration: 8 hours 
